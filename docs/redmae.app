@@ -1,1 +1,0 @@
-abseriuae rizare
